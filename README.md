@@ -1,2 +1,2 @@
 # guangdongpms
-https://github.com/Free202502/guangdongpms/zhiyenianjin.html
+https://Free202502.vip/guangdongpms/zhiyenianjin.html
